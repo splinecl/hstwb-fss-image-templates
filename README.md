@@ -1,0 +1,1 @@
+# hstwb-fss-image-templates
